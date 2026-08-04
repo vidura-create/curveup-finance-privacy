@@ -67,5 +67,5 @@ You have the right to:
 
 If you have any questions about this Privacy Policy, please contact us at:
 
-**Email:** support@curveup.com  
-**Website:** https://curveuplab.app
+**Email:** vidura@gocurveup.com  
+**Website:** https://gocurveup.com
